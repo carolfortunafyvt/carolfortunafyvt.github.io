@@ -1,1 +1,0 @@
-# carolfortunafyvt.github.io
